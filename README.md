@@ -4,7 +4,7 @@
  
  <p align="center"/>
 <b>offtab almost always, w2interact !</b> <br>
-<i>any prns except masc</i>　 —— 　𐂯   <br>
+<i>any prounouns!</i>　 —— 　𐂯   <br>
  minor 　 +  　<b>any terms</b>   `　<br>
 read pt info rentry for more info ⁽𓏼´ㅂ𓏼⁾﹗
 
